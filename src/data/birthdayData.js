@@ -125,7 +125,6 @@ But I really hope iss saal tum khud ko thoda aur believe karna seekho.
 Aur haan, overthink karna thoda kam.
 
 Thoda.
-
 Pura band karne ko nahi bol rahi.
 Itna bhi unrealistic birthday wish nahi maangungi. 😭
 
@@ -163,8 +162,6 @@ Because perfect hona zaroori hi nahi hai.
 You being you is pretty special already.
 
 Happy Birthday, Cutiee.💕
-
-Now jao.
 
 Aaj tumhara din hai.
 Go be the happiestttt.
