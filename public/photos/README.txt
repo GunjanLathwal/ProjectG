@@ -1,0 +1,1 @@
+Put hero.jpg, profile.jpg and memory-1.jpg through memory-8.jpg here. Replace or edit the paths in src/data/birthdayData.js as needed.
